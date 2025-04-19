@@ -41,6 +41,6 @@ Things I do in my free time:
 
 ---
 
-**“Steel yourself, for the road is long”** -SK  
+**“Paradise is not found, it is built”** -The Talos Principle 2  
 
 ---
